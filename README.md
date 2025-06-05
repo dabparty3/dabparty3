@@ -1,11 +1,8 @@
-# 🌟 Hey there, fellow internet wanderer! 🌟
+# Hey there! 
 
-## 😎 Who am I?
+## Who am I?
 
-I’m just your **super cool dude** –  
-the kind that builds *awesome* stuff and vanishes into the mist.
-
-> "Yep. That's all." – Me, probably
+I’m just a... **super cool dude**.
 
 ---
 
