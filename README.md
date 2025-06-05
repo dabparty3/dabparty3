@@ -6,13 +6,12 @@ I’m just a... **super cool dude**.
 
 ---
 
-### 🔧 What do I do?
+### What do I do?
 
 I make things.  
-They're not just cool...  
-They're **_super_ cool**.  
-✨ *Trust me.* ✨
+They're cool. I hope.
+*Trust me.*
 
 ---
 
-> 🚀 Stay tuned. More coolness coming soon.
+> I will update this with things I've done in the future... If I remember. Probably won't.
