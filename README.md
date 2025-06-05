@@ -2,7 +2,7 @@
 
 ## Who am I?
 
-I’m just a... **super cool dude**.
+I’m just a **cool dude**.
 
 ---
 
